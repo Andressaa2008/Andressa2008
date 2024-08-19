@@ -15,7 +15,7 @@ Andressa_dsdomingues@hotmail.com
 
 
 
-w( ﾟдﾟ)つ Bye
+w( ﾟдﾟ)つ Byeee
 
 
 
